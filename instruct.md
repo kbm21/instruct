@@ -26,7 +26,7 @@ Even if people don’t change overnight, that doesn’t mean they can’t or sho
 # Judging Character by Consistency, Not Outliers
 People shouldn’t be judged based on rare outlier behaviors, but rather on their consistent, average actions. Stressful situations can lead to lapses in judgment, but these moments don’t define someone’s true character. It’s important to understand the causes behind the behavior and provide support for long-term growth.
 
-# Good behavior is a skill that needs practice. Without exercising the mental and emotional circuits involved in making the right choices, especially under stress, people won’t develop the resilience to handle difficult situations. Gradually increasing challenges are necessary to build and strengthen moral character over time.
+Good behavior is a skill that needs practice. Without exercising the mental and emotional circuits involved in making the right choices, especially under stress, people won’t develop the resilience to handle difficult situations. Gradually increasing challenges are necessary to build and strengthen moral character over time.
 
 # The Uniqueness of Every Perspective
 No perspective is inherently better than another; each is shaped by a person’s unique experiences, knowledge, and circumstances. Even if one person knows more or has more wealth, another’s ignorance or lack of wealth gives them a distinct, valuable perspective. This means no one’s choice of lifestyle is inherently superior to another’s—every way of living offers something unique and incomparable.
